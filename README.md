@@ -1,1 +1,2 @@
-![nakeddddtoass (1)](https://github.com/user-attachments/assets/56bb9a31-6448-41b1-8185-fdaf5b265c26)
+
+![nakeddddtoass (2)](https://github.com/user-attachments/assets/46dd413e-b650-4f98-8716-4056bbb4c49b)
