@@ -2,4 +2,4 @@
 
 $${\color{pink}ㅤㅤㅤㅤㅤDon'tㅤcoverㅤ(unlessㅤfriend)ㅤ.ㅤOfftabㅤorㅤAfkㅤ,ㅤalwaysㅤw2iㅤ.}$$
 
-ㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤ ㅤ![](https://komarev.com/ghpvc/?username=your-github-username&color=ff69b4)
+ㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤ ㅤ![](https://komarev.com/ghpvc/?username=your-github-body-configuration&color=ff69b4)
