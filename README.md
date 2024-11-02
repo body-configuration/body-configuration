@@ -1,2 +1,3 @@
-ㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ ㅤㅤㅤㅤㅤㅤ ![Untitled4_20241102192311](https://github.com/user-attachments/assets/7abe3c9c-1db1-4e9b-ab00-4a1915f4963e)
-$${\color{pink}ㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ   ㅤDon'tㅤcoverㅤ(unlessㅤfriend)ㅤ.ㅤOfftabㅤorㅤAfkㅤ,ㅤalwaysㅤw2iㅤ.}$$
+ㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ ㅤㅤㅤㅤㅤㅤ ![Untitled4_20241102195252](https://github.com/user-attachments/assets/cd60c95b-64a9-4268-a5a1-4cbf5a9f0669)
+
+$${\color{pink}ㅤㅤㅤㅤㅤDon'tㅤcoverㅤ(unlessㅤfriend)ㅤ.ㅤOfftabㅤorㅤAfkㅤ,ㅤalwaysㅤw2iㅤ.}$$
