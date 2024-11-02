@@ -2,4 +2,4 @@
 
 $${\color{pink}ㅤㅤㅤㅤㅤDon'tㅤcoverㅤ(unlessㅤfriend)ㅤ.ㅤOfftabㅤorㅤAfkㅤ,ㅤalwaysㅤw2iㅤ.}$$
 
-![](https://komarev.com/ghpvc/?username=body-configuration&color=pink=true)
+![](https://komarev.com/ghpvc/?username=your-body-configuration&color=pink&abbreviated=true)
