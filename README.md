@@ -3,3 +3,4 @@
 $${\color{pink}ㅤㅤㅤㅤㅤDon'tㅤcoverㅤ(unlessㅤfriend)ㅤ.ㅤOfftabㅤorㅤAfkㅤ,ㅤalwaysㅤw2iㅤ.}$$
 
 ㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤ 
+$${\color{pink}@uravitiesㅤhaiii}$$
