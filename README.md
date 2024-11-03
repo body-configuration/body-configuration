@@ -1,4 +1,5 @@
-ㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ ㅤ![Untitled9_20241103202848](https://github.com/user-attachments/assets/9541dcce-6cbc-4c89-b864-382692d85427)
+ㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ ㅤ![Untitled9_20241103204200](https://github.com/user-attachments/assets/eb561af8-787e-4ae7-a1bb-8d4f8a8d748b)
+
 
 $${\color{orange}ㅤㅤㅤㅤㅤDon'tㅤcoverㅤ(unlessㅤfriend)ㅤ.ㅤOfftabㅤorㅤAfkㅤ,ㅤalwaysㅤw2iㅤ.}$$
 
