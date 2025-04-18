@@ -1,5 +1,3 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=body-configuration&color=214B70)
 
-![image](https://github.com/user-attachments/assets/f03736a5-2422-40d1-83d5-e036fc8906c3)![tumblr_ad7c4647faa22e9830199212e3f3678f_b734fcd4_500](https://github.com/user-attachments/assets/902717bc-6f2a-4932-98c4-6c41435ceda8)
-
-
+ㅤㅤㅤㅤ![13d8a0db03fe631f98a2a071f7d0645f](https://github.com/user-attachments/assets/786ad33e-d415-49ca-9a1c-8c09c073b6f3)
